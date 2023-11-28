@@ -24,8 +24,5 @@ Ready to embark on this coding journey with me? Hit that subscribe button and bu
 
 📸 **Instagram:** [@ananascode](https://www.instagram.com/ananascode)
 
-🐦 **Twitter:** [@ananascode](https://twitter.com//ananascode)
-
-🌐 **[Website]:** [Ananascode.com](https://ananascode.com)
 
 Thanks for being here! Get ready to code, create, and conquer the web together. 🚀✨
