@@ -22,10 +22,10 @@ Ready to embark on this coding journey with me? Hit that subscribe button and bu
 ## Let's Connect
 
 
-📸 **Instagram:** [@YourInstagramHandle](instagram.com/ananascode)
+📸 **Instagram:** [@ananascode](instagram.com/ananascode)
 
-🐦 **Twitter:** [@YourTwitterHandle](twitter.com/ananascode)
+🐦 **Twitter:** [@ananascode](twitter.com/ananascode)
 
-🌐 **[Website/Blog]:** [YourWebsite.com](ananascode.com)
+🌐 **[Website]:** [Ananascode.com](ananascode.com)
 
 Thanks for being here! Get ready to code, create, and conquer the web together. 🚀✨
